@@ -1,2 +1,3 @@
 # training_
-V‘º–k“lhoge
+æ–°æ‘åŒ—æ–—
+hogefugabar
